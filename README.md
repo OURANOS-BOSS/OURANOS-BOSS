@@ -1,2 +1,1 @@
-Discord : BO$$#2023
-
+Discord : .b.o.s.s.
